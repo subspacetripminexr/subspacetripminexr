@@ -1,9 +1,9 @@
 <img width="1280" height="426" alt="tumblr_3ddc85a43d69a583872d79c71ef36272_73274568_1280" src="https://github.com/user-attachments/assets/5dc3c66d-4ba7-4d49-878a-1c326e51633e" />
 
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=wh95bd2d2nzt9nw0o7ozlsule&cover_image=true&theme=natemoo-re&show_offline=false&background_color=8FFE09&interchange=false&profanity=false&hide_remaster=false)](https://github.com/kittinan/spotify-github-profile)
+
 <p align="center">
 <img width="150" height="150" alt="tumblr_e63668406d725c664276f7f392b1490d_05624fae_1280 (1)" src="https://github.com/user-attachments/assets/3d79c477-6044-4404-ba69-a39c086a8c7b" />
-
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=wh95bd2d2nzt9nw0o7ozlsule&cover_image=true&theme=natemoo-re&show_offline=false&background_color=8FFE09&interchange=false&profanity=false&hide_remaster=false)](https://github.com/kittinan/spotify-github-profile)
 
 <img width="2048" height="19" alt="tumblr_d052be1b76c49d99360732899333f293_ddabf0fb_2048" src="https://github.com/user-attachments/assets/16b9cda0-6eb6-476d-a565-cb64c7f335ba" />
 <p align="center">
