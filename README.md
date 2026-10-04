@@ -1,3 +1,4 @@
+<img width="400" height="400" alt="tumblr_a5de2bffaf98722392a1328133740e0e_0cab05ee_400" src="https://github.com/user-attachments/assets/4ebc711f-79cc-453d-9f99-da7e64921485" />
 <img width="1280" height="426" alt="tumblr_3ddc85a43d69a583872d79c71ef36272_73274568_1280" src="https://github.com/user-attachments/assets/5dc3c66d-4ba7-4d49-878a-1c326e51633e" />
 
 <img width="1280" height="720" alt="tumblr_677705f7459caff87bdb3722cfc68fd4_c5038ddc_1280 (1)" src="https://github.com/user-attachments/assets/a692b445-3a81-4b26-9c2d-de9f3dc38228" />
@@ -5,6 +6,7 @@
 
 <img width="150" height="150" alt="tumblr_ebb83ce0db7f3ad6bba800188c83e78f_d1d4e2cb_400" src="https://github.com/user-attachments/assets/4b8a39fc-5c5a-41a9-8fcd-49a49ceb503d" />[![Typing SVG](https://readme-typing-svg.demolab.com?font=Isometra&size=10&pause=1000&color=6B00F7&center=true&vCenter=true&width=435&lines=%22Do+you+act-t-tu-ually+think+y-y-you+can+defe-e-e-ee-eat+me%3F%22)](https://git.io/typing-svg)
 
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Isometra&size=9&pause=1000&color=6B00F7&center=true&vCenter=true&width=435&lines=%22AHAHA%2C+ARE+YOU+KIDDING%3F+I+HATE+THIS+STUPID+JO-O-O-O-O-%22)](https://git.io/typing-svg)<img width="150" height="150" alt="tumblr_a5de2bffaf98722392a1328133740e0e_0cab05ee_400" src="https://github.com/user-attachments/assets/4ebc711f-79cc-453d-9f99-da7e64921485" />
 <!--
 **subspacetripminexr/subspacetripminexr** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
