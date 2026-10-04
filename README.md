@@ -3,9 +3,12 @@
 <img width="1280" height="720" alt="tumblr_677705f7459caff87bdb3722cfc68fd4_c5038ddc_1280 (1)" src="https://github.com/user-attachments/assets/a692b445-3a81-4b26-9c2d-de9f3dc38228" />
 <img width="800" height="267" alt="tumblr_d0a107a61b915a2483db0e439711a0ac_45b34449_1280 (1)" src="https://github.com/user-attachments/assets/65db4e68-5dcf-4cd7-9367-59fafd222e06" />
 
+<p align="center">
 <img width="150" height="150" alt="tumblr_ebb83ce0db7f3ad6bba800188c83e78f_d1d4e2cb_400" src="https://github.com/user-attachments/assets/4b8a39fc-5c5a-41a9-8fcd-49a49ceb503d" />[![Typing SVG](https://readme-typing-svg.demolab.com?font=Isometra&size=10&pause=1000&color=6B00F7&center=true&vCenter=true&width=435&lines=%22Do+you+act-t-tu-ually+think+y-y-you+can+defe-e-e-ee-eat+me%3F%22)](https://git.io/typing-svg)
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Isometra&size=9&pause=1000&color=6B00F7&center=true&vCenter=true&width=435&lines=%22AHAHA%2C+ARE+YOU+KIDDING%3F+I+HATE+THIS+STUPID+JO-O-O-O-O-%22)](https://git.io/typing-svg)<img width="150" height="150" alt="tumblr_a5de2bffaf98722392a1328133740e0e_0cab05ee_400" src="https://github.com/user-attachments/assets/4ebc711f-79cc-453d-9f99-da7e64921485" />
+<p align="center">
+
+  [![Typing SVG](https://readme-typing-svg.demolab.com?font=Isometra&size=9&pause=1000&color=6B00F7&center=true&vCenter=true&width=435&lines=%22AHAHA%2C+ARE+YOU+KIDDING%3F+I+HATE+THIS+STUPID+JO-O-O-O-O-%22)](https://git.io/typing-svg)<img width="150" height="150" alt="tumblr_a5de2bffaf98722392a1328133740e0e_0cab05ee_400" src="https://github.com/user-attachments/assets/4ebc711f-79cc-453d-9f99-da7e64921485" />
 <!--
 **subspacetripminexr/subspacetripminexr** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
