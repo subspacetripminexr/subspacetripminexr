@@ -12,9 +12,11 @@
               
 
 <img width="2048" height="19" alt="tumblr_d052be1b76c49d99360732899333f293_ddabf0fb_2048" src="https://github.com/user-attachments/assets/16b9cda0-6eb6-476d-a565-cb64c7f335ba" />
-<p align="center">
-  
-  [![Typing SVG](https://readme-typing-svg.demolab.com?font=Isometra&size=9&pause=1000&color=6B00F7&center=true&vCenter=true&width=435&lines=%22AHAHA%2C+ARE+YOU+KIDDING%3F+I+HATE+THIS+STUPID+JO-O-O-O-O-%22)](https://git.io/typing-svg)<img width="150" height="150" alt="tumblr_a5de2bffaf98722392a1328133740e0e_0cab05ee_400" src="https://github.com/user-attachments/assets/4ebc711f-79cc-453d-9f99-da7e64921485" />
+
+<p align="center">  
+<img width="150" height="150" alt="tumblr_a5de2bffaf98722392a1328133740e0e_0cab05ee_400" src="https://github.com/user-attachments/assets/4ebc711f-79cc-453d-9f99-da7e64921485" />
+
+  [![Typing SVG](https://readme-typing-svg.demolab.com?font=Isometra&size=9&pause=1000&color=6B00F7&center=true&vCenter=true&width=435&lines=%22AHAHA%2C+ARE+YOU+KIDDING%3F+I+HATE+THIS+STUPID+JO-O-O-O-O-%22)](https://git.io/typing-svg)
 <!--
 **subspacetripminexr/subspacetripminexr** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
