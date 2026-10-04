@@ -6,6 +6,7 @@
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=wh95bd2d2nzt9nw0o7ozlsule&cover_image=true&theme=natemoo-re&show_offline=false&background_color=8FFE09&interchange=false&profanity=false&hide_remaster=false)](https://github.com/kittinan/spotify-github-profile)
 
 <img width="2048" height="19" alt="tumblr_d052be1b76c49d99360732899333f293_ddabf0fb_2048" src="https://github.com/user-attachments/assets/16b9cda0-6eb6-476d-a565-cb64c7f335ba" />
+<p align="center">
 <img width="150" height="84" alt="tumblr_767bdf923ae46b2bdd57855065941353_5320d320_250" src="https://github.com/user-attachments/assets/26d411f3-d0b1-477a-959b-62651b609f4d" />
 <img width="150" height="84" alt="tumblr_de213950a5432020033df8a318e86feb_ef70c5bb_250" src="https://github.com/user-attachments/assets/3e1b6328-3d99-4680-8cbc-ef7e9d69dba6" />
 <img width="150" height="84" alt="tumblr_6a373dcc7389b75f076e16b8b0bad81c_dfa24e0f_250" src="https://github.com/user-attachments/assets/70df24d5-0243-4760-9283-5732eb2693d5" />
