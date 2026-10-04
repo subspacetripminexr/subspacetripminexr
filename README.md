@@ -11,13 +11,13 @@
   ⤿✦ ᗯᕼEᖇE ᗩᖇE  YOᑌ ? !? 𝄢 ⟡ 
 
 <p align="center">
-  ⁽        ⊱ ۫ ׅ ✧ 𝖯𝖱ᝪ  ⚠︎  𝖭ᝪU𝖭𝖲 ✴
+  ⁽        ⊱ ۫ ׅ ✧ 𝝙𝝥𝗬   ⚠︎  𝝯𝝝𝝞𝗗𝗦𝝨𝗟𝗙 ✴
 
 <p align="center">     
   ⋈ 𖦹 𝄢  ☠︎ ᵀᴴᴱ ⱽᴼᴵᴰ ˢᵀᴬᴿ〃〃 ✧
 
  <p align="center"> 
-  ◟  ︶︶ 𝗍᥊𝗍   𝗍᥊𝗍   𝗍᥊𝗍   𝗍᥊𝗍      ⟡   
+  ◟  ︶︶  𝝙𝝘𝝩𝝞𝗦𝝩 / 𝝨𝗗𝝞𝝩𝝝𝝘 /𝝮𝗨𝗟𝝩𝝞𝗙𝝙𝝥𝗗𝝝𝝮𝝨𝝘  ⟡   
 <img width="2048" height="19" alt="tumblr_d052be1b76c49d99360732899333f293_ddabf0fb_2048" src="https://github.com/user-attachments/assets/16b9cda0-6eb6-476d-a565-cb64c7f335ba" />
 <p align="center">
 <img width="150" height="84" alt="tumblr_767bdf923ae46b2bdd57855065941353_5320d320_250" src="https://github.com/user-attachments/assets/26d411f3-d0b1-477a-959b-62651b609f4d" />
