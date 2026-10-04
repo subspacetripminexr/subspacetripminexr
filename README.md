@@ -1,4 +1,5 @@
-<img width="149" height="65" alt="NoliLogoNew" src="https://github.com/user-attachments/assets/26067d0b-76d6-4cf1-adfb-6a25249f68eb" />
+<img width="1280" height="426" alt="tumblr_3ddc85a43d69a583872d79c71ef36272_73274568_1280" src="https://github.com/user-attachments/assets/5dc3c66d-4ba7-4d49-878a-1c326e51633e" />
+
 
 
 <!--
